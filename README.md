@@ -1,4 +1,4 @@
-### dizzy Bienvenue 👋
+### :dizzy: Bienvenue 👋
 
 - 📫 Contactez-moi sur ** **
 
